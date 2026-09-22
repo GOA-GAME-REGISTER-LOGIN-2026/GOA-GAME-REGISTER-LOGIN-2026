@@ -4,7 +4,7 @@
 
 ---
 
-[![Goa Game Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://dmfirst1.com/#/register?invitationCode=93473213030)
+[![Goa Game Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://linkly.link/2tnMI)
 
 ---
 
