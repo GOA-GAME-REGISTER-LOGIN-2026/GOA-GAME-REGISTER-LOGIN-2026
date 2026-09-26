@@ -4,7 +4,7 @@
 
 ---
 
-[![Goa Game Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://linkly.link/2tnMI)
+[![Goa Game Register](https://i.imageupload.app/7fd2de362ed10fa75599.jpeg)](https://yaarwinn0.online/#/register?invitationCode=7165482258352)
 
 ---
 
